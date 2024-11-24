@@ -1,0 +1,19 @@
+- 👋 Hi, I’m @jkmsjs
+- 👀 I’m interested in ...
+- 🌱 I’m currently learning ...
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me ...
+- 😄 Pronouns: ...
+- ⚡ Fun fact: ...
+
+<!---
+jkmsjs/jkmsjs is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+You can click the Preview link to take a look at your changes.
+--->3952789508
+电话:13669793625
+归属地:云南昆明 移动
+英雄联盟：没有找到
+微博：没有找到
+老米：没有找到
+--------------------------
+星礼分享站404c点cn
